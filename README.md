@@ -1,0 +1,5 @@
+- 👋 Hello, I'm @devedsonnascimento
+- 👀 I'm interested in the programming area.
+- 🌱 I currently have a degree in Information Technology Management, and studying a postgraduate degree in Software Engineering
+- 💞️ I'm looking to collaborate in the development of Android applications...
+- 📫 How to contact my number +55 83-981280129 Brazil.
